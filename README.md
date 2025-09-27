@@ -22,7 +22,7 @@ Josh miró su teléfono móvil, donde tenía instalada la aplicación de MetaTra
 
 La imagen mental le provocó un escalofrío. No era solo una fantasía paranoica; era una posibilidad real y tangible. En el trading, la distancia entre el éxito y la ruina completa no se mide en días, semanas o meses. Se mide en segundos.
 
-"Si operáramos con capital propio sería mucho peor", murmuró para sí mismo, articulando por primera vez en voz alta el pensamiento que le aterrorizaba. "Podríamos perder todo el capital dedicado al trading en solo unos minutos."
+"Si operáramos con capital propio sería mucho peor", murmuró para sí mismo, articulando por primera vez en voz alta el pensamiento que le aterrorizaba. "Podríamos perder los ahorros de años en solo unos minutos."
 
 Pero entonces, como si su mente fuera un rompecabezas que de repente encontrara la pieza que faltaba, Josh hizo una conexión que cambiaría para siempre su perspectiva no solo sobre el trading, sino sobre la vida misma. Si el trading era peligroso por la ausencia de reglas externas, ¿qué pasaba con otro sueño que perseguía con igual fervor: la libertad financiera?
 
