@@ -122,7 +122,7 @@ Pero algo faltaba. Toda esa claridad de propósito se estrellaba contra la reali
 
 La palabra surgió en su mente como un flash de luz: **Saucha**.
 
-En sus clases de yoga había aprendido sobre los Yamas y Niyamas, los principios éticos del yoga. Saucha era uno de los Niyamas: pureza, orden, limpieza. No solo física, sino mental y emocional. Era la base sobre la cual se construían todas las demás prácticas espirituales.
+En sus clases de yoga había aprendido sobre los Yamas y Niyamas, los principios éticos del yoga. Saucha era uno de los Niyamas: pureza, orden, limpieza. No solo física, sino mental y emocional. Era la base sobre la cual se construían todas las demás prácticas espirituales. Aprendió que cada Yama tenía asociado un super poder y el de Saucha es la claridad mental, justo lo que le estaba faltando!
 
 Josh miró hacia su caravana, visible desde donde estaba sentado, y se dio cuenta de que su estado externo no era más que un reflejo de su estado interno. La arena por todas partes, los proyectos a medias, las noches de consumo digital sin propósito... todo ello era la manifestación física de una mente que había perdido su centro.
 
