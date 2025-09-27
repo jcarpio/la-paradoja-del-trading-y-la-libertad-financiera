@@ -14,7 +14,7 @@ Se dirigió a su pequeña cocina y se preparó su ritual matutino: un vaso de ag
 
 Estos meses en la caravana habían sido un experimento fascinante, aunque no siempre exitoso. Era como un laboratorio de libertad a pequeña escala. Sin jefe que le marcara horarios, sin obligaciones inmediatas más allá de sus propias decisiones, sin la estructura de profesor universitario que había definido su vida hasta ese momento. Algunos días se despertaba al amanecer, inspirado por la luz dorada que se reflejaba en el mar. Otros días se quedaba hasta tarde con Flight Simulator 2024, rescatando otro de sus sueños olvidados: pilotar un avión. Ese juego le había devuelto la ilusión de forma inesperada.
 
-Josh llevaba tiempo rescatando sueños del cajón de los sueños olvidados y estaba decidido a seguir haciéndolo realidad. Ya tenía planes para hacer el Camino de Santiago en bicicleta, o esa ruta épica de Matalascañas a Sanlúcar de Barrameda atravesando la playa del Parque Natural de Doñana. Cada sueño rescatado era como encender una vela en la oscuridad.
+Josh llevaba tiempo rescatando sueños del cajón de los sueños olvidados y estaba decidido a seguir desempolvando sueños y hacerlos realidad. Ya tenía planes para hacer el Camino de Santiago en bicicleta, o esa ruta épica de Matalascañas a Sanlúcar de Barrameda atravesando la playa del Parque Natural de Doñana. Cada sueño rescatado era como encender una vela en la oscuridad.
 
 Pero en el trading... el resultado había sido predeciblemente desastroso. Había quemado ya 8 cuentas de fondeo en solo diez meses, operando sin reglas claras, improvisando sobre la marcha, cambiando de estrategia cada vez que algo no funcionaba.
 
