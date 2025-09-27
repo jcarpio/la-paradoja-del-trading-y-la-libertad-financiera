@@ -254,6 +254,4 @@ Era hora de navegar hacia el horizonte de sus sueños más auténticos.
 
 *Y entonces comenzaba otro día perfecto en su vida imperfectamente ordenada.*
 
----
-
-Creado con la ayuda de Claude.ai : https://claude.ai/public/artifacts/68f95c4a-05cb-40b2-8cd1-f68f08dd61ea
+Creado con la ayuda de Claude.ai : [https://claude.ai/public/artifacts/68f95c4a-05cb-40b2-8cd1-f68f08dd61ea]
