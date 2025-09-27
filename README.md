@@ -72,15 +72,15 @@ El sol de la tarde bañaba el interior de la caravana con una luz cálida que se
 
 ---
 
-Tres semanas después de aquel lunes revelador, Josh despertó pasadas las once de la mañana. El sol ya había alcanzado su punto más alto y la caravana se había convertido en un horno sofocante. Se incorporó con dificultad, apartando de su cara las gafas Meta Quest 3 que había estado probando hasta altas horas de la madrugada. La noche anterior había perdido la noción del tiempo explorando mundos virtuales y viendo videos de YouTube sobre las últimas innovaciones en realidad virtual.
+Tres semanas después de aquel lunes revelador, Josh despertó pasadas las once de la mañana. El sol ya había alcanzado su punto más alto y en la caravana se empezaba a sentir el calor. Se incorporó con dificultad, apartando de su cara las gafas Meta Quest 3 que había estado probando hasta altas horas de la madrugada. La noche anterior había perdido la noción del tiempo explorando mundos virtuales y viendo videos de YouTube sobre las últimas innovaciones en realidad virtual.
 
-Miró a su alrededor y suspiró. La caravana "dos ambientes" que una vez había sido su refugio ordenado ahora parecía el epicentro de un huracán personal. Arena de la playa cubría prácticamente todas las superficies: el suelo, la mesa plegable donde tenía el portátil, incluso las sábanas de la cama. Ropa sucia se acumulaba en una esquina, mezclándose con cables de carga, libros abiertos por la mitad y envases de comida que no había tenido energía para limpiar.
+Miró a su alrededor y suspiró. La caravana "dos ambientes" que una vez había sido su refugio ordenado ahora parecía el epicentro de un huracán personal. Arena de la playa cubría prácticamente todas las superficies: el suelo, la mesa multiusos donde tenía el portátil, incluso las sábanas de la cama. Ropa sucia se acumulaba en una esquina, mezclándose con cables de carga, libros abiertos por la mitad y envases de comida que no había tenido energía para limpiar.
 
 En la pequeña cocina, los platos se amontonaban como una torre de Pisa precaria, mientras que sobre la mesa plegable su portátil permanecía abierto, mostrando aún la última pestaña que había estado viendo: un video de cuarenta y tres minutos sobre "Los mejores paneles solares para caravanas off-grid". No lo había terminado, como tantas otras cosas en su vida últimamente.
 
-Josh se dirigió hacia la cocina, esquivando los obstáculos que él mismo había creado, y preparó su ritual matutino con menos entusiasmo que de costumbre. El agua con limón y flor de sal de Castro Marim sabía igual, pero algo había cambiado en él. La disciplina del ayuno intermitente se había relajado considerablemente en las últimas semanas. Ahora, más que una práctica consciente, era consecuencia de levantarse tan tarde que ya no tenía hambre hasta la hora de la comida.
+Josh se levantó en la caravana con dificultad hacia la mini cocina, esquivando los obstáculos que él mismo había creado, y preparó su ritual matutino con menos entusiasmo que de costumbre. El agua con limón y flor de sal de Castro Marim sabía igual, pero algo había cambiado en él. La disciplina del ayuno intermitente se había relajado considerablemente en las últimas semanas. Ahora, más que una práctica consciente, era consecuencia de levantarse tan tarde que ya no tenía hambre hasta la hora de la comida.
 
-Estos tres años de semi-libertad total, con siete meses sin clases universitarias cada año, habían sido una montaña rusa emocional y práctica. Al principio, cuando llegó a la playa de los Enebrales, todo parecía perfecto. Era más ordenado entonces: meditaba cada mañana al amanecer, escribía religiosamente en su diario, mantenía la caravana como un pequeño templo zen frente al océano.
+Estos tres años de semi-libertad total, con siete meses sin clases universitarias cada año, habían sido una montaña rusa emocional y práctica. Al principio, cuando llegó a la playa del chiringuito Fashion, todo parecía perfecto. Era más ordenado entonces: meditaba cada mañana al amanecer, escribía religiosamente en su diario, mantenía la caravana como un pequeño templo zen frente al océano.
 
 Pero el tiempo, ese regalo envenenado, había comenzado a corromper sus buenas intenciones.
 
@@ -88,7 +88,7 @@ El exceso de horas libres le había llevado por caminos que ahora, con la perspe
 
 La ironía era aplastante: tenía más tiempo libre que nunca, pero menos productividad real que cuando trabajaba doce horas al día.
 
-Josh se sentó frente a su portátil, apartando las migas de la cena de anoche, y abrió la carpeta que más culpabilidad le generaba: "Videos pendientes de editar". Ahí estaban, como soldados en formación acusándole silenciosamente de su negligencia: las grabaciones de su épico viaje en bicicleta desde Matalascañas a Sanlúcar atravesando el Parque Natural de Doñana. Horas de material grabado, paisajes espectaculares, momentos únicos que había prometido convertir en una serie de videos inspiradores para sus seguidores. Eso había sido hace ocho meses.
+Josh se sentó frente a su portátil, apartando las migas de la cena de anoche, y abrió la carpeta que más culpabilidad le generaba: "Videos pendientes de editar". Ahí estaban, como soldados en formación acusándole silenciosamente de su negligencia: las grabaciones de su épico viaje en bicicleta desde Matalascañas a Sanlúcar atravesando el Parque Natural de Doñana. Horas de material grabado, paisajes espectaculares, momentos únicos que había prometido convertir en una serie de videos inspiradores para sus seguidores. Eso había sido hace ya dos meses.
 
 Justo debajo, otra carpeta le gritaba su nombre: "Clases Prolog - Universidad". Sus clases de Programación Declarativa que había grabado para sus estudiantes durante el último semestre. Material valioso que podría ayudar a cientos de alumnos, pero que permanecía en estado bruto, sin editar, como un diamante enterrado en su disco duro.
 
@@ -100,7 +100,7 @@ El resultado: cero progreso en sus proyectos reales, ocho horas perdidas en cont
 
 Josh cerró el portátil con más fuerza de la necesaria y salió de la caravana. La playa estaba radiante bajo el sol de mediodía, pero él se sentía como un fantasma arrastrando cadenas invisibles. Caminó hasta la orilla y se sentó sobre la arena, dejando que las olas le mojaran los pies.
 
-Era en momentos como este cuando la memoria de sus fracasos económicos le golpeaba con más fuerza. El verano anterior, durante el viaje en bicicleta con Caio y Daniela camino a Santiago de Compostela —otro sueño olvidado rescatado que había resultado más caro de lo previsto—, había tenido que hacer algo que jamás pensó que haría a los 52 años: llamar a su madre para pedirle dinero.
+Era en momentos como este cuando la memoria de sus fracasos económicos le golpeaba con más fuerza. El mes pasado, durante el viaje en bicicleta con Caio y Daniela camino a Santiago de Compostela —otro sueño olvidado rescatado que había resultado más caro de lo previsto—, había tenido que hacer algo que jamás pensó que haría a los 52 años: llamar a su madre para pedirle dinero.
 
 La conversación aún le provocaba rubor. "Mamá, es que no calculé bien los gastos del viaje, y con las formaciones online que he comprado este año..." No había sabido cómo explicarle que había gastado más de tres mil euros en cursos que no había terminado, mientras que las necesidades básicas del viaje familiar le habían pillado con las finanzas en números rojos.
 
@@ -114,7 +114,7 @@ Durante algunas semanas, el método había funcionado. Había reorganizado la ca
 
 Pero incluso los mejores hábitos se habían ido diluyendo con el tiempo. Sin la presión externa, sin fechas límite reales, sin consecuencias inmediatas, todo se volvía opcional. Y cuando todo es opcional, la mente humana tiende a elegir lo más fácil e inmediatamente gratificante.
 
-Josh recordó el curso de "Propósito" con Maryell Cisneros, otra inversión de quinientos euros que había hecho con la esperanza de encontrar esa chispa que le faltaba. Durante las ocho semanas del programa, había explorado sus valores, había definido su misión personal, había creado mapas de objetivos coloridos y motivadores. Por un tiempo, se había sentido conectado con una versión más clara de sí mismo.
+Josh recordó el curso de "Propósito" con Maryell Cisneros, otra inversión que había hecho con la esperanza de encontrar esa chispa que le faltaba. Durante las ocho semanas del programa, había explorado sus valores, había definido su misión personal, había creado mapas de objetivos coloridos y motivadores. Por un tiempo, se había sentido conectado con una versión más clara de sí mismo.
 
 Pero algo faltaba. Toda esa claridad de propósito se estrellaba contra la realidad cotidiana de su caravana desordenada, sus proyectos a medias, sus noches perdidas en YouTube. Entendía intelectualmente hacia dónde quería ir, pero no conseguía materializar esa comprensión en acciones consistentes día tras día.
 
@@ -122,7 +122,7 @@ Pero algo faltaba. Toda esa claridad de propósito se estrellaba contra la reali
 
 La palabra surgió en su mente como un flash de luz: **Saucha**.
 
-En sus clases de yoga con Daniela había aprendido sobre los Yamas y Niyamas, los principios éticos del yoga. Saucha era uno de los Niyamas: pureza, orden, limpieza. No solo física, sino mental y emocional. Era la base sobre la cual se construían todas las demás prácticas espirituales.
+En sus clases de yoga había aprendido sobre los Yamas y Niyamas, los principios éticos del yoga. Saucha era uno de los Niyamas: pureza, orden, limpieza. No solo física, sino mental y emocional. Era la base sobre la cual se construían todas las demás prácticas espirituales.
 
 Josh miró hacia su caravana, visible desde donde estaba sentado, y se dio cuenta de que su estado externo no era más que un reflejo de su estado interno. La arena por todas partes, los proyectos a medias, las noches de consumo digital sin propósito... todo ello era la manifestación física de una mente que había perdido su centro.
 
@@ -137,11 +137,3 @@ Porque había comenzado a vislumbrar una verdad aterradora: si no era capaz de m
 El trading le había enseñado que los mercados no perdonan la indisciplina. Y la vida, aparentemente, tampoco.
 
 Era hora de descubrir las reglas del juego más importante de todos: el de vivir conscientemente en libertad.
-
-Josh entró en la caravana, apartó la arena de la mesa con determinación, y abrió "Trading en la Zona" por donde lo había dejado. Esta vez no se distraería. Esta vez leería hasta encontrar las respuestas que tanto necesitaba.
-
-Porque presentía que en esas páginas no solo estaba la clave para el trading exitoso, sino para algo mucho más importante: la fórmula para vivir libre sin autodestruirse en el proceso.
-
-La sesión de trading de esa tarde transcurriría como cualquier otra. Pero Josh sabía que algo fundamental había comenzado a moverse en su interior. Las próximas páginas de "Trading en la Zona" contenían revelaciones que cambiarían para siempre su comprensión no solo de los mercados, sino de la propia existencia.
-
-Era el comienzo de algo mucho más grande que una simple estrategia de trading. Era el inicio de un viaje hacia una verdad que aún no podía imaginar, pero que transformaría cada aspecto de su vida.
