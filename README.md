@@ -24,7 +24,9 @@ La imagen mental le provocó un escalofrío. No era solo una fantasía paranoica
 
 "Si operáramos con capital propio sería mucho peor", murmuró para sí mismo, articulando por primera vez en voz alta el pensamiento que le aterrorizaba. "Podríamos perder los ahorros de años en solo unos minutos."
 
-Pero entonces, como si su mente fuera un rompecabezas que de repente encontrara la pieza que faltaba, Josh hizo una conexión que cambiaría para siempre su perspectiva no solo sobre el trading, sino sobre la vida misma. Si el trading era peligroso por la ausencia de reglas externas, ¿qué pasaba con otro sueño que perseguía con igual fervor: la libertad financiera?
+Pero entonces, como si su mente fuera un rompecabezas que de repente encontrara la pieza que faltaba, Josh hizo una conexión que cambiaría para siempre su perspectiva no solo sobre el trading, sino sobre la vida misma. 
+
+Si, "el trading era peligroso por la ausencia de reglas externas" y esta idea se podía llevar a una vida en libertad financiera. 
 
 La libertad financiera. Esas dos palabras mágicas que pronunciaba como una oración cada noche antes de dormir. El santo grial de todo trader, inversor y emprendedor. Pero por primera vez, Josh se preguntó: ¿qué sucede realmente cuando alcanzas esa libertad?
 
