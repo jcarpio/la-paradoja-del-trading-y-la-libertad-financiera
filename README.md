@@ -4,7 +4,7 @@
 
 ---
 
-El sonido de las olas rompiendo contra la orilla fue lo que despertó a Josh esa mañana de lunes. No había despertador que le marcara la hora; en su caravana la playa de los Enebrales de Punta Umbría, el tiempo fluía de manera diferente. Hacía casi tres años que había tomado la decisión más radical de su vida: dejar atrás su apartamento, cambiar todo y mudarse a esta caravana Wilk junto a la costa luso-española. Los meses sin clases en la universidad le habían dado esta oportunidad única de explorar algo que siempre había soñado: la libertad real.
+El sonido de las olas rompiendo contra la orilla fue lo que despertó a Josh esa mañana de lunes. No había despertador que le marcara la hora; en su caravana la playa de los Enebrales de Punta Umbría, el tiempo fluía de manera diferente. Hacía casi tres años que había tomado la decisión más radical de su vida: dejar atrás su apartamento, cambiar todo y mudarse a esta caravana Wilk consignos de 10 años de aventuras, junto a la costa luso-española. Los meses sin clases en la universidad le habían dado esta oportunidad única de explorar algo que siempre había soñado: la libertad real.
 
 Pero esa mañana, algo había cambiado. En su mesilla de noche descansaba un libro que había estado leyendo las últimas semanas: "Trading en la Zona". Cada página que pasaba le hacía cuestionarse todo lo que creía saber sobre los mercados, pero aún no había llegado a las revelaciones que cambiarían para siempre su perspectiva.
 
