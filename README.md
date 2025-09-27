@@ -60,13 +60,13 @@ Quizás el problema no era la libertad en sí misma, sino la falta de preparaci�
 
 Pero para alcanzar todo eso necesitaba libertad financiera. Y ahí estaba el dilema que comenzaba a vislumbrar: ¿qué pasaba cuando finalmente la conseguía?
 
-Josh miró el reloj, las 15:15 hora de Madrid. Quince minutos antes de la apertura de la bolsa a las 9:30 AM de de Nueva York. Se sentó frente al ordenador, pero por primera vez en meses, dudó antes de abrir MetaTrader. Algo en las páginas de "Trading en la Zona" le había removido por dentro, aunque aún no terminaba de entender qué.
+Josh miró el reloj, las 15:15 hora de Madrid. Quince minutos antes de la apertura de la bolsa a las 9:30 AM de Nueva York. Se sentó frente al ordenador, pero por primera vez en meses, dudó antes de abrir MetaTrader. Algo en las páginas de "Trading en la Zona" le había removido por dentro, aunque aún no terminaba de entender qué.
 
 Las preguntas comenzaron a agolparse en su mente como nubes de tormenta. Preguntas que no tenía respuestas, pero que presentía que serían cruciales para su futuro. Preguntas que le mantendrían despierto en las próximas semanas, mientras seguía leyendo ese libro que estaba cambiando su perspectiva sobre todo.
 
 El sol de la tarde bañaba el interior de la caravana con una luz cálida. Josh encendió las pantallas, pero algo había cambiado en su interior. Ya no era solo un trader buscando ganancias. Era alguien que estaba comenzando a cuestionar las bases mismas de lo que creía saber sobre el éxito, la libertad y la vida.
 
-# Capítulo II: El Nudo - Cuando la Libertad se Convierte en Caos
+# Capítulo II: Cuando la Libertad se Convierte en Caos
 
 *"La libertad sin disciplina es como un territorio sin carreteras: hermoso desde lejos, pero difícil de recorrer con velocidad."*
 
@@ -138,7 +138,7 @@ El trading le había enseñado que los mercados no perdonan la indisciplina. Y l
 
 Era hora de descubrir las reglas del juego más importante de todos: el de vivir conscientemente en libertad.
 
-# Capítulo III: El Desenlace - Las Reglas de la Libertad
+# Capítulo III: Las Reglas de la Libertad
 
 *"La verdadera libertad no es hacer lo que queremos, sino querer lo que hacemos con propósito y disciplina."*
 
